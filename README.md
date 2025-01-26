@@ -1,1 +1,1 @@
-# vvit.github.io
+# VVIT
